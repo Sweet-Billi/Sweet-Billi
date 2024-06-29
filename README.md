@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Sweet-Billi
+- 👋 Hi, I’m Ritesh Sahoo
 - 👀 I’m interested in gaming ,coding :) 
 - 🌱 I’m currently learning coding and stocks
 <!---
